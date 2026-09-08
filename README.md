@@ -1,4 +1,4 @@
 # fika
 rajin belajar 
 pintar
-suka membaca
+rajin menulis
